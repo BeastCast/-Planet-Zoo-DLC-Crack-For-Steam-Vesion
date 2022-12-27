@@ -1,5 +1,5 @@
 # -Planet-Zoo-DLC-Crack-For-Steam-Vesion
-This is specifically meant for the Steam version of Planet Zoo, or a cracked Steam version of Planet Zoo. If you don't know how to download the file; hit the big green Code button with the down arrow. Then hit download ZiP.
+This is specifically meant for the Steam version of Planet Zoo, or a cracked Steam version of Planet Zoo. If you don't know how to download the file; then go to releases and download the latest release.
 
 Installation instructions is in other Read Me (the one with the space); if you think this is a virus, well it's not, I don't even know how to make a virus. Why would I want to know how, you don't know how much of a problem I used to have with em.
 
