@@ -5,6 +5,4 @@ Installation instructions is in other Read Me (the one with the space); if you t
 
 NOTE: This is for education purposes only! This is specifically meant for those to test and try out the DLC for themselves, and please head to the link below to buy the dlcs for yourself (the dlcs of your choise) or just buy the game in general. https://store.steampowered.com/app/703080/Planet_Zoo/
 
-If doesn't work anymore, hit me up on Reddit or Twitter so I can update. AND if you have questions, hit me up as well.
 
-REDDIT: https://www.reddit.com/user/Critical_Employee_20 TWITTER:https://twitter.com/EthanCarsten
